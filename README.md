@@ -1,3 +1,3 @@
 # Hello
 My first repositiry
-I love :paragliding:
+I love :paragliding: 🍪: 🍵:
